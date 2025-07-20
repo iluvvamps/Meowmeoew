@@ -1,3 +1,3 @@
 guys pls read my carrd
 
-[carrd]
+[carrd](https://iluvsweetsz.carrd.co) 
